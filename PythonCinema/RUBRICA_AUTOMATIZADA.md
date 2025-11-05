@@ -1,0 +1,1 @@
+# Rúbrica Automatizada
